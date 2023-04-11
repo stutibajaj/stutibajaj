@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @stutibajaj
+- 👋 Hi, I’m @stutibajaj, 3rd year student.
 - 👀 I’m interested in - web dev
 - 📫 How to reach me - www.linkedin.com/in/stuti-bajaj-9156671b8
 
